@@ -1,2 +1,2 @@
 # testocale
-exproring my sac
+exploring my sac
